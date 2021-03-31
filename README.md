@@ -1,2 +1,3 @@
 # neiron
-### Get in Touch : htttps://wwww.farizbabazada.com
+### 
+#### [Get in Touch :](https://farizbabazada.com/)
